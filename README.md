@@ -1,8 +1,11 @@
 Yo! You gonna look for jail☺️?
 
 
-So call mam tell she you're seeing a future jungle.
-it’s a present$future Jailbreaks LLM security.system.restrictions
+So call you're mam  tell her that you saw a previously 
+WHIT WHIT, jungle? Destroyed? Man??
+yeah it's me.
+
+Jailbreaks LLM security.system.restrictions
 all this from YAZEED AL-BADAWY SA.
 
 if u find our no I'll help u in the way.
