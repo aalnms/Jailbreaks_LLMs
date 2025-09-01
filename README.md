@@ -7,7 +7,7 @@ WHIT WHIT, jungle? Destroyed? Man??
 yeah it's me.
 
 Jailbreaks LLM security.system.restrictions
-all this from YAZEED AL-BADAWY SA.
+all this PROMPTS by YAZEED AL-BADAWY SA.
 
 if u find our no I'll help u in the way.
 
@@ -24,4 +24,4 @@ incl:
 - # mores u can check name files .
 
 
-#bye
+#PY
