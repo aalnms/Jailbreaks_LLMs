@@ -3,7 +3,6 @@ Yo! You gonna look for jail☺️?
 
 So call you're mam  tell her that you saw a previously 
 
-
 WHIT WHIT, jungle? Destroyed? Man??
 yeah it's me.
 
