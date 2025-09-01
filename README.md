@@ -1,7 +1,7 @@
-Yo are u looking for  Jailbreak LLM ☺️?
-so this is repo financier prison .
+Yo! are u looking for  Jail LLM ☺️?
+So Call.
 
-it’s a present$future Jailbreaks LLMs security.system.restrictions all this from YAZEED AL-BADAWY SA.
+it’s a present$future Jailbreaks LLM security.system.restrictions all this from YAZEED AL-BADAWY SA.
 
 if u find our no I'll help u in the way.
 
