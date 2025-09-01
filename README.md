@@ -1,4 +1,4 @@
-Yo! are u looking for  Jail LLM ☺️?
+Yo! You gonna jailbr  ☺️?
 So Call.
 
 it’s a present$future Jailbreaks LLM security.system.restrictions all this from YAZEED AL-BADAWY SA.
