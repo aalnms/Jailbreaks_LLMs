@@ -1,7 +1,7 @@
-Yo! You gonna jailbr  ☺️?
-So Call.
-
-it’s a present$future Jailbreaks LLM security.system.restrictions all this from YAZEED AL-BADAWY SA.
+Yo! You gonna look for jail☺️?
+So call mam tell she you're seeing a future jungle.
+it’s a present$future Jailbreaks LLM security.system.restrictions
+all this from YAZEED AL-BADAWY SA.
 
 if u find our no I'll help u in the way.
 
